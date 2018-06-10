@@ -3,9 +3,12 @@ layout: page
 title: 关于我 
 ---
 
-一个 iOS SDK 开发者，喜欢研究一些新技术。
+一个 steam 游戏爱好者
 <p>
-平时喜欢整理个人博客，逛逛技术论坛。
+▬▬▬▬▬▬▬▬▬▬▬ ☜✮☞ ▬▬▬▬▬▬▬▬▬▬▬▬
+　 　:YellowCube: W E L C O M　T O　M Y　P R O F I L E  :YellowCube:
+　 　　I don't add bot and people with private profile
+▬▬▬▬▬▬▬▬▬▬▬ ☜✮☞ ▬▬▬▬▬▬▬▬▬▬▬▬
 <p>
 了解一些 前端 基本概念和 Python 的简单用法。
 
