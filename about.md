@@ -25,15 +25,15 @@ I don't add bot and people with private profile
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ᴀʙᴏᴜᴛ ᴍᴇ:<br>
 
-﹡:bluejelly: UUid：衰仔<br>
+﹡ steam UUid：衰仔<br>
 
-〄 :heavenforest:联系方式QQ：786987968<br>
+◆  马画藤 联系方式QQ：786987968<br>
 
-甴:paradisecloud: 玩的游戏：csgo<br>
+甴 长玩的游戏：csgo 彩虹6号 <br>
 
-㏘:2017stickytube:⠀需要科学上网（魔法上网VPN）的联系我，我这边有新加坡和韩国的.<br>
+◆ VPN:⠀需要科学上网（魔法上网VPN）的联系我，我这边有新加坡和韩国的.<br>
 
-◆:csgoskull: Discord: 【 https://discord.gg/HDy6Bc7】 [语音——游戏频道] 好友ID：rainsojey#6464<br>
+◆ Discord: 【 https://discord.gg/HDy6Bc7】 [语音——游戏频道] 好友ID：rainsojey#6464<br>
 
 ৳৸ᵃᵑᵏ Ꮍ৹੫ᵎ<br>
 
